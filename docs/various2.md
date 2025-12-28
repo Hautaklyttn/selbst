@@ -10,7 +10,7 @@ layout: default
 [[4] J.K.Zinn - *Gesund durch Meditation*](#book4)  
 [[5] R.Safranski - *Einzeln sein*](#book5)  
 [[6] Y.Tang - *Die Wissenschaft der Achtsamkeit*](#book6)    
-[[7]](#book7) ...  
+[[7] J.Salzgeber - *Das kleine Handbuch des Stoizismus*](#book7) ...  
 [[8]](#book8) ...  
 [[9]](#book9) ...  
 
@@ -229,3 +229,12 @@ dass Koordination zwischen dem VNS (Körper) und dem ZNS (Geist) eine Verhaltens
 verändert. Optimales Gleichgewicht (in diesem Zusammenhang ein Zustand des Aufmerksamkeitsgleichgewichts) wird als Auslöser für die effizienteste Form von Meditation - den Zustand der tiefen Meditation, in der Abbildung durch das zylindrische Areal in der Mitte dargestellt - angenommen.  
 
 ![x](./assets/pics/optimalAufm.png)  
+
+&nbsp;
+
+<a name="book7"></a> <font size="-1">aus <span style="color:red ">[7]</span>:</font>
+&nbsp;
+
+[...]Das Praktizieren des Stoizismus hilft Ihnen, sich als Mensch zu verbessern; der Stoizismus lehrt Sie, Ihr Leben bewusst an einer Reihe erstrebenswerter Werte auszurichten, wie Tapferkeit, Geduld, Selbstdisziplin, Gelassenheit, Ausdauer, Vergebung, Freundlichkeit und Demut.
+
+[...] Im Stoizismus ist es viel wichtiger, was man aus den gegebenen Umständen *macht*. Die Stoiker erkannten, dass das gute Leben nicht so sehr davon abhängt, was in der unkontrollierbaren Wlt um uns herum geschieht, sondern hauptsächlich von der Kultivierung des eigenen Charakters, von den eigenen Entscheidungen und Handlungen. Dies ist die Wurzel eines schwierigen und zugleich hochgradig attraktiven Aspekts des Stoizismus - er überträgt uns die Verantwortung und entzieht uns jegliche Ausreden, nicht das bestmögliche Leben zu führen.
