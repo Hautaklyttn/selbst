@@ -139,6 +139,94 @@ Stoizismus dient als Medizin für die Seele. Er lindert unsere Verletzlichkeit i
 
 &nbsp;
 
+**Kultiviere Gleichgültigkeit, wo andere Leidenschaft hegen**  
+> Von all den Dingen, die es gibt, sind manche gut, andere schlecht, andere wiederum gleichgültig. Die guten Dinge und alles, was daran teilhat, sind Tugenden; die schlechten und alles, was sich ihnen hingibt, sind Sünden; die gleichgültigen liegen genau zwischen Tugend und Sünde, sie umfassen Wohlstand, Gesundheit, Leben, Tod, Freud und Leid.  
+> <font size="-1">(Epiktet, Lehrgespräche)</font>
+
+Stell dir vor, wie mächtig du in deinem Leben und deinen Beziehungen wärst, wenn all die Dinge, mit denen sich andere Menschen beschäftigen - ihre Figur, wie viel Geld sie haben, wie lange sie noch leben werden, wie sie sterben - dir nicht so wichtig wären. Wie wäre das, wenn du objektiv, ruhig und bei klarem Verstand bleiben würdest, während alle anderen aufgebracht, neidisch, erregt, besitzergreifend oder gierig wären? Kannst du dir das vorstellen? Stell dir vor wie sich das auf deine Beziehungen am Arbeitsplatz auswirken,auf dein Liebesleben oder deine Freundschaften.  
+Seneca war ein unfassbar reicher, ja sogar berühmter Mann, und war zugleich ein Stoiker. Er besaß viele materielle Werte, doch die Stoiker berichten, dass sie ihm gleichgültig waren. Er genoss die Dinge solange es sie gab, und akzeptierte, dass sie irgendwann vielleicht nicht mehr da sein würden. Um wie viel besser ist eine solche Haltung, als wenn man verzweifelt stets nur mehr anstrebt oder fürchtet, auch einen Cent Verlust zu machen. Gleichgültigkeit ist die beständige Mitte.  
+Es geht nicht darum, Dinge zu vermeiden oder gar zu verdammen, sondern darum, keinem der möglichen Ergebnisse mehr Macht oder mehr Vorzüge zuzugestehen, als angemessen. Dies ist gar nicht so einfach umzusetzen, aber wenn es dir gelänge, wie viel entspannter wärest du dann?
+
+&nbsp;
+
+**Wo Philosophie beginnt**  
+> Um Philosophie zu beginnen, ist es besonders wichtig, über eine klare Wahrnehmung des eigenen Leitprinzips zu verfügen.  
+> <font size="-1">(Epiktet, Lehrgespräche)</font>
+
+Philosophie ist einschüchternd. Wo soll man beginnen? Mit 'Büchern? Mit Vorträgen? Mit dem Verkauf irdischer Besitztümer?  
+Nichts von alledem. Epiktet sagt, dass man zum Philosophen wird, wenn man sich darin übt, sich von der Vernunft leiten zu lassen, und beginnt, Gefühle, Überzeugungen und selbst Sprache infrage zu stellen, die andere Menschen als gegeben hinnehmen. Es heißt, dass ein Tier über Selbstwahrnehmung verfügt, wenn es in der Lage ist, sich selbst im Spiegel zu erkennen. Vielleicht könnten wir sagen, dass wir unsere Reise in die Philosophie beginnen, wenn wir uns bewusst werden, dass wir unseren eigenen Verstand analysieren können.  
+Kannst du heute mit diesem Schritt beginnen? Wenn du das tust, wirst du herausfinden, dass wir richtig aufblühen und ein Leben führen — um mit Sokrates zu sprechen —, das wirklich lebenswert ist.  
+
+&nbsp;
+
+**(K)Ein Teil des Ganzen**  
+> Diese Dinge passen nicht zueinander. Du musst ein einheitlicher Mensch sein, entweder gut oder böse. Du musst sorgfältig an deinem eigenen Denken arbeiten oder aber an Dingen, die nicht in deiner Macht stehen. Gib gut auf dein Inneres acht, nicht auf das Außen, was so viel heißt wie: Bleibe dem Philosophen treu, sonst gehörst du zum Pöbel!  
+> <font size="-1">(Epiktet, Lehrgespräche)</font>
+
+Wir alle sind kompliziert. Wir haben die unterschiedlichsten Seiten, mit widersprüchlichen Wünschen, Leidenschaften und Ängsten. Die Außenwelt ist nicht weniger verwirrend und widersprüchlich. Wenn wir nicht aufpassen, werden uns diese Kräfte — das
+ewige Hin und Her — zerreißen. Wir können nicht gleichzeitig wie Jekyll und Hyde leben. Zumindest nicht sehr lange.  
+Wir haben die Wahl: dem Philosophen treu zu bleiben und uns ganz auf unser Inneres zu konzentrieren, oder uns wie ein Rädelsführer zu verhalten und so zu werden, wie es die Masse gerade wünscht. Wenn wir uns nicht ganz auf uns selbst konzentrieren — auf Selbstwahrnehmung riskieren wir, uns selbst zu verlieren.  
+
+&nbsp;
+
+**Nichts geht ohne dein Einverständnis**  
+> Heute bin ich allen bedrückenden Umständen ausgewichen, besser gesagt, ich habe mich von ihnen befreit, denn der Druck kam nicht von außen, sondern von mir und meinen Annahmen.  
+> <font size="-1">(Marc Aurel, Selbstbetrachtungen)</font>
+
+An manchen Tagen seufzen wir vielleicht: »Meine Arbeit überfordert mich.« Oder: »Mein Chef nervt mich.« Wenn wir nur einsehen könnten, dass das unmöglich ist. Niemand kann dich nerven, Arbeit kann dich nicht überfordern — dies sind äußere Objekte, und
+sie haben keinen Zugang zu deinem Verstand. Die Gefühle, die du empfindest, so real sie auch sein mögen, kommen von innen, nicht von außen.  
+Die Stoiker nennen das *hypolépsis*, was »aufgreifen« bedeutet, von Wahrnehmungen, Gedanken und Urteilen. Was wir annehmen, welche Hirngespinste wir fabrizieren, das liegt an uns selbst. Wir können anderen Leuten ebenso wenig vorwerfen, dass sie dafür verantwortlich sind, wenn wir uns gestresst fühlen oder frustriert sind, wie für unsere Eifersucht. Die Ursache liegt bei uns selbst. Sie sind nur die Zielscheibe.  
+
+&nbsp;
+
+**Philosophie ist überall**  
+> Iss wie ein Mensch, trinke wie ein Mensch, kleide dich, heirate, zeuge Kinder, werde politisch aktiv, erdulde Erniedrigungen, habe Nachsicht mit einem eigensinnigen Bruder, Vater, Sohn, Nachbarn Oder Freund. Zeige uns all das, sodass wir erkennen, was du wirklich von den Philosophen gelernt hast.  
+> <font size="-1">(Epiktet, Lehrgespräche)</font>
+
+Plutarch, ein römischer Biograf und ebenso ein Bewunderer der Stoiker, beschäftigte sich erst sehr spät mit den Größen der römischen Literatur. Aber er erinnert sich in seiner Biografie des Demosthenes, dass er überrascht war, wie schnell er alles begriffen hatte. So schrieb er: »Es waren nicht so sehr Worte, die dafür sorgten, dass ich all das Beschriebene verstand, ich hatte selbst ähnliche Erfahrungen gemacht, die mir erlaubten, die Bedeutung der Worte gleich zu begreifen.«  
+Genau das meint Epiktet, wenn er vom Studium der Philosophie spricht. Studiere, ja, aber sieh zu, dass du auch sonst dein Leben lebst. Nur so wirst du wirklich verstehen, was das alles zu bedeuten hat. Denn: Nur an deinen Taten und Entscheidungen wirst du mit der Zeit erkennen können, ob du dir Irgendwelche Lehren zu Herzen genommen hast.  
+Mache dir das heute bewusst, wenn du zur Arbeit gehst, einer Verabredung nachkommst, wählen gehst, abends deine Eltern anrufst, dem Nachbar zuwinkst, dem Boten ein Trinkgeld gibst oder einem geliebten Menschen Gute Nacht sagst. All das ist Philosophie. All das ist eine Erfahrung, die den Worten Bedeutung verleiht.  
+
+&nbsp;
+
+**Warum willst du diese Leute wieder beeindrucken?**  
+> Solltest du jemals deinen Willen auf etwas richten, das nicht in deiner Macht steht, um jemand anderen zu beeindrucken, dann sei versichert, dass du damit den Sinn deines Lebens zunichtemachst. Sei also zufrieden damit, in allem, was du tust, ein Philosoph zu sein, und wenn du auch als ein solcher angesehen werden möchtest, dann beweise erst dir selbst, dass du einer bist, und du wirst erfolgreich sein.  
+> <font size="-1">(Epiktet, Enchiridion)</font>
+
+Gibt es irgendetwas Beschämenderes als unsere verzweifelten Versuche, andere zu beeindrucken? Was wir alles unternehmen, um die Anerkennung von jemandem zu bekommen, erscheint uns im Rückblick wie ein zeitweiliger Anflug von Wahnsinn. Plötzlich tragen
+wir unbequeme, lächerlich aussehende Kleidung, ändern unsere Essgewohnheiten und Gesprächsthemen, warten ungeduldig auf einen Anruf oder eine Nachricht. Wenn wir all das täten, weil es uns gefällt, wäre das etwas anderes. Aber dem ist ia nicht so. Es ist nur ein Mittel zum Zweck, um von jemandem Anerkennung zu erhalten.  
+Wie Marc Aurel wiederholt betont hat, liegt die Ironie darin, dass die Menschen, auf deren positive Beurteilung wir aus sind, selbst auch gar nicht so großartig sind. Auch sie haben Fehler und lassen sich von allen möglichen lächerlichen Dingen ablenken und begeistern. Wir wissen das und wollen doch nicht darüber nachdenken. Um noch einmal Fight Club zu zitieren: »Wir kaufen Dinge, die wir nicht brauchen, um Menschen zu beeindrucken, die wir nicht mögen.«  
+Klingt das nicht ganz schön albern? Aber was entscheidender ist: Bringt dich das nicht völlig ab von der Gelassenheit und Sicherheit, die dir die Philosophie bietet?  
+
+&nbsp;
+
+**Du bist das Produkt deiner Ausbildung**  
+> Unmöglichem hinterherzujagen ist Wahnsinn. Aber der einfältige Mensch ist nicht imstande, etwas anderes zu tun.  
+> <font size="-1">(Marc Aurel, Selbstbetrachtungen)</font>
+
+Ein Hund, dem erlaubt wird, Autos zu jagen, wird Autos jagen. Ein Kind, dem keine Grenzen aufgezeigt werden, wird verzogen. Ein Investor ohne Selbstdisziplin ist kein Investor, sondern ein Spieler. Ein Verstand, der sich nicht beherrschen kann und nicht imstande ist, die Macht der Selbstregulierung zu begreifen, wird von äußeren Umständen und plötzlichen Impulsen an der Nase herumgeführt.  
+Du wirst nicht wollen, dass deine Zukunft so wird. Du musst dir dessen gewahr werden. Du musst deine Ausbildung und Gepflogenheiten einsetzen, um deine Unwissenheit und mangelnde Disziplin zu überwinden. Erst dann wirst du anfangen, dich anders zu verhalten und auch anders zu handeln. Erst dann wirst du aufhören, das Unmögliche, Kurzsichtige und Unnötige zu suchen.
+
+&nbsp;
+
+**...**  
+> ...  
+> <font size="-1">(...)</font>
+
+&nbsp;
+
+**...**  
+> ...  
+> <font size="-1">(...)</font>
+
+&nbsp;
+
+**...**  
+> ...  
+> <font size="-1">(...)</font>
+
+&nbsp;
+
 
 &nbsp;
 
