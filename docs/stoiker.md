@@ -209,6 +209,124 @@ Du wirst nicht wollen, dass deine Zukunft so wird. Du musst dir dessen gewahr we
 
 &nbsp;
 
+**Die Farbe deiner Gedanken**  
+> Dein Verstand formt sich je nachdem, was deine Gedanken regelmäßig beschäftigt. Die menschliche Seele färbt sich nach diesen Vorstellungen.  
+> <font size="-1">(Marc Aurel, Selbstbetrachtungen)</font>
+
+Wenn dein Körper über lange Zeit tagtäglich eine Sitzhaltung einnimmt, wird sich deine Wirbelsäule verkrümmen. Ein Arzt kann anhand einer Röntgenaufnahme (oder Autopsie) feststellen, ob jemand sein Leben lang am Schreibtisch gearbeitet hat. Wenn du deine
+Füße jeden Tag in kleine, enge Schuhe zwängst, werden sich deine Füße dementsprechend verformen.  
+Dasselbe gilt für unseren Verstand. Wenn du ständig alles negativ betrachtest, wird dir bald alles, was dir begegnet, negativ erscheinen. Wenn du deinen Verstand einschränkst, wirst du engstirnig. Färbe ihn mit falschen Gedanken und dein Leben wird sich dieser Färbung anpassen.  
+
+&nbsp;
+
+**Urteile führen zu Verwirrungen**  
+> Es Sind nicht die Ereignisse, die Menschen beunruhigen, sondern deren Beurteilungen.  
+> <font size="-1">(Epiktet, Enchiridion)</font>
+
+Der Samurai Musashi, einer der berühmtesten Schwertkämpfer, machte einen Unterschied zwischen dem »wahrnehmenden Auge« und dem »beobachtenden Auge«. Das beobachtende Auge sieht, wie die Dinge sind. Das wahrnehmende Auge sieht, was die Dinge vermutlich bedeuten. Welches, denkst du, bereitet uns den meisten Kummer?  
+Ein Ereignis hat kein Eigenleben. Es ist unbefangen. Es ist, was es ist. So sieht es das beobachtende Auge.  
+*Das wird mich ruinieren. Wie konnte das nur passieren? Ach herrie! Das ist schuld an ...* So stellt es sich das wahrnehmende Auge vor. Es führt zur Verwirrung und gibt dem Ereignis die Schuld.  
+
+&nbsp;
+
+**Weniger ist mehr**  
+> Du sollst nicht widerwillig und selbstsüchtig handeln, nicht ohne gründliche Gewissenhaftigkeit oder als Querdenker. Überfrachte deine Gedanken nicht mit spitzfindigen Formulierungen. Sei nicht ein Mann der vielen Worte und Taten Sei heiter und gelassen, ohne auf Hilfe Oder Unterstützung von außen angewiesen zu sein. Sei jemand, der aufrecht stehen kann, ohne aufgerichtet werden zu müssen.  
+> <font size="-1">(Marc Aurel, Selbstbetrachtungen)</font>
+
+in den meisten Situationen des Lebens trifft dic Redewendung »Weniger ist mehr« zu. Zum Beispiel sind die Schriftsteller, die wir bewundern, wahre Meister der Ökonomie und Knappheit. Was sie auslassen ist ebenso wichtig — manchmal noch wichtiger — als das, was sie im Text belassen. Es gibt ein Gedicht von Philip Levine mit dem Titel »He Would Never Use One Word Where None Would Do« (Er würde nie ein Wort benutzen, wenn keines auch genügen würde). Und in Hamlet, dem hervorragendsten aller Dramen, erwidert Königin Gertrude nach einer langen Rede von Polonius kurz und knapp: »More matter With less art« (Mehr Inhalt, weniger Kunst). Komm endlich zur Sache!  
+Stell dir vor, dass der römische Kaiser, der ein höchst aufmerksames Publikum hat und über unbegrenzte Macht verfügt, sich selbst auffordert, nicht »ein Mann der vielen Worte und Taten« zu sein. Daran solltest du dich das nächste Mal erinnern, wenn du etwas zu selbstzufrieden bist oder das Gefühl hast, andere Leute beeindrucken zu müssen.  
+
+&nbsp;
+
+**Verliere nicht deine Aufmerksamkeit**  
+> Wenn du deine Aufmerksamkeit für einen Moment verlierst, glaube nicht, dass du sie wieder in den Griff bekommst, wann immer du es willst. Denke lieber daran, dass der heutige Fehler zwangsläufig Schlechtes nach sich zieht Ist es aber möglich, ganz ohne Fehler zu sein? Auf keinen Fall. Es ist jedoch möglich, sich stets darum zu bemühen, Fehler zu vermeiden. Denn wir müssen damit zufrieden sein, zumindest ein paar Fehler zu vermeiden, indem wir unsere Aufmerksamkeit nicht verlieren.  
+> <font size="-1">(Epiktet, Lehrgespräche)</font>
+
+Winifred Gallagher zitiert in ihrem Buch Rapt den Kognitionswissenschaftler David Meyer von der University of Michigan: »Einstein entwickelte seine Relativitätstheorie nicht, während er in einem Schweizer Patentbüro verschiedene Aufgaben gleichzeitig erledigte.« Er entwickelte sie später, als er wirklich Zeit hatte, sich darauf zu konzentrieren und sie zu erforschen. Aufmerksamkeit ist wichtig — und in einer Zeit, in der die Aufmerksamkeit von jeder neuen App und Webseite, jedem neuen Zeitungsartikel, Buch, Tweet und Post in Anspruch genommen wird, ist ihr Wert noch gestiegen.  
+Was Epiktet hier unter anderem sagen will, ist, dass Aufmerksamkeit eine Gewohnheit ist, und wenn wir sie vernachlässigen und unsere Gedanken schweifen lassen, wird dies zu einer schlechten Angewohnheit, die Fehler möglich macht.  
+Du wirst nie alle Aufgaben erledigen können, wenn du es zulässt, von jeder Kleinigkeit abgelenkt zu werden. Deine Aufmerksamkeit ist eine deiner wichtigsten Ressourcen. Verschwende sie nicht!  
+
+&nbsp;
+
+**Zeige, was du weisst, anstatt davon zu erzählen**  
+> Wer die reine Theorie nur schlucken soll, will sie gleich meder ausspeien, so wie ein verstimmter Magen das Essen. Verdaue deine Theorien zuerst und du wirst dich nicht übergeben müssen. Sonst bleiben sie roh und sind nicht nahrhaft. Wenn du sie verdaut hast, zeige, wie dich deine durchdachten Entscheidungen verändert haben, so wie die Schultern von Turnern auf ihr Training schließen lassen, und die Arbeiten von Kunsthandwerkern auf das, was sie gelernt haben.  
+> <font size="-1">(Epiktet, Lehrgespräche)</font>
+
+Viele der stoischen Aphorismen kann man sich leicht merken, es sind kluge Zitate. Aber darum geht es bei der Philosophie nicht. Das Ziel ist es, die Worte in Taten umzusetzen. Wie Musonius Rufus betonte, rechtfertigt sich die Philosophie dann, wenn »man vernünftige Lehren mit vernünftigen Handlungsweisen verknüpft«.  
+Solltest du dich heute oder wann auch immer dabei ertappen, dass du herablassend dein Wissen zum Besten geben willst, halte inne frage dich: *Statt es in Worte zu fassen, wäre es nicht besser, mein Wissen anhand von Taten und Entscheidungen für sich sprechen zu lassen.*  
+
+&nbsp;
+
+**Der Stoiker ist stets im Werden bergriffen**  
+> Zeige mir jemanden, der krank und glücklich ist, in Gefahr und gücklich, auf dem Sterbebett und glücklich, im Exil und glücklich, Ungnade gefallen und glücklich. Zeige ihn mir! Bei Gott, wie gerne würde ich einen Stoiker sehen. Aber da du mir niemanden
+zeigen kannst, der so perfekt ist, zeige mir zumindest jemanden, der sich aktiv mit diesem Ziel formt und ausbildet... Zeige ihn mir!  
+> <font size="-1">(Epiktet, Lehrgespräche)</font>
+
+Statt Philosophie als Ziel zu betrachten, das man anstrebt, solltest du sie als etwas ansehen, das angewendet wird. Nicht gelegentlich, sondern im Verlauf eines Lebens — auf dessen Weg du stufenweise Fortschritte machst. Kontinuierliche Übungen, keine formlosen Erleuchtungen.  
+Epiktet liebte es, seine Schüler aus ihrer selbstgefälligen Zufriedenheit über ihre eigenen Fortschritte zu rütteln. Er wollte sie und somit auch dich daran erinnern, dass konstante Arbeit und ernsthaftes Training nötig sind, wenn wir uns jemals der perfekten Form annähern wollen.  
+Es ist wichtig, sich stets in Erinnerung zu rufen, dass wir auf unseren Weg zur Selbstvervollkommnung nie ankommen werden. Der Weise — der wahre Stoiker, der sich in jeder Situation richtig verhält — ist ein Ideal, nicht ein Ziel.  
+
+&nbsp;
+
+»Was soll es bezwecken, zahllose Bücher zu besitzen, die man zu
+Lebzeiten kaum alle lesen kann? Dem Lernenden wird nichts bei-
+gebracht, das reine Ausmaß belastet ihn nur. Deshalb ist es besser,
+die Samen von ein paar Autoren zu pflanzen, als die von vielen zu
+zerstreuen.
+SENECA, VON DER RUHE DES GEMÜTS, 9.4
+s gibt keinen Preis dafür, die meisten Bücher gelesen zu haben,
+E
+bevor man stirbt. Selbst wenn du der passionierteste Leser der
+Welt wärst, ein Buch pro Tag lesen würdest, wäre deine Sammlung
+dennoch kaum größer als eine kleine Bibliotheksabteilung. Du wirst
+niemals mithalten können mit dem, was auf den Servern von Goog-
+Ie Books liegt, oder mit den Hunderttausenden neuer Buchtitel, die
+jährlich auf Amazon angeboten werden.
+Was wäre, wenn du die Qualität der Quantität vorzögest, was dein
+Lesen und Lernen betrifft? Was wäre, wenn du ein paar großartige
+Bücher intensiv lesen würdest anstatt flüchtig durch alle Neuerschei-
+nungen zu blättern? Deine Bücherregale wären vielleicht leerer, aber
+dein Geist und dein Leben wären reicher.
+
+**Qualtität statt Quantität**  
+> Was soll es bezwecken, zahllose Bücher zu besitzen, die man zu Lebzeiten kaum alle lesen kann? Dem Lernenden wird nichts beigebracht, das reine Ausmaß belastet ihn nur. Deshalb ist es besser, die Samen von ein paar Autoren zu pflanzen, als die von vielen zu zerstreuen.  
+> <font size="-1">(...)</font>
+
+Es gibt keinen Preis dafür, die meisten Bücher gelesen zu haben, bevor man stirbt. Selbst wenn du der passionierteste Leser der Welt wärst, ein Buch pro Tag lesen würdest, wäre deine Sammlung dennoch kaum größer als eine kleine Bibliotheksabteilung. Du wirst niemals mithalten können mit dem, was auf den Servern von GoogIe Books liegt, oder mit den Hunderttausenden neuer Buchtitel, die jährlich auf Amazon angeboten werden.  
+Was wäre, wenn du die Qualität der Quantität vorzögest, was dein Lesen und Lernen betrifft? Was wäre, wenn du ein paar großartige Bücher intensiv lesen würdest anstatt flüchtig durch alle Neuerscheinungen zu blättern? Deine Bücherregale wären vielleicht leerer, aber dein Geist und dein Leben wären reicher.
+
+&nbsp;
+
+**...**  
+> ...  
+> <font size="-1">(...)</font>
+
+&nbsp;
+
+**...**  
+> ...  
+> <font size="-1">(...)</font>
+
+&nbsp;
+
+**...**  
+> ...  
+> <font size="-1">(...)</font>
+
+&nbsp;
+
+**...**  
+> ...  
+> <font size="-1">(...)</font>
+
+&nbsp;
+
+**...**  
+> ...  
+> <font size="-1">(...)</font>
+
+&nbsp;
+
 **...**  
 > ...  
 > <font size="-1">(...)</font>
