@@ -268,26 +268,6 @@ Es ist wichtig, sich stets in Erinnerung zu rufen, dass wir auf unseren Weg zur 
 
 &nbsp;
 
-»Was soll es bezwecken, zahllose Bücher zu besitzen, die man zu
-Lebzeiten kaum alle lesen kann? Dem Lernenden wird nichts bei-
-gebracht, das reine Ausmaß belastet ihn nur. Deshalb ist es besser,
-die Samen von ein paar Autoren zu pflanzen, als die von vielen zu
-zerstreuen.
-SENECA, VON DER RUHE DES GEMÜTS, 9.4
-s gibt keinen Preis dafür, die meisten Bücher gelesen zu haben,
-E
-bevor man stirbt. Selbst wenn du der passionierteste Leser der
-Welt wärst, ein Buch pro Tag lesen würdest, wäre deine Sammlung
-dennoch kaum größer als eine kleine Bibliotheksabteilung. Du wirst
-niemals mithalten können mit dem, was auf den Servern von Goog-
-Ie Books liegt, oder mit den Hunderttausenden neuer Buchtitel, die
-jährlich auf Amazon angeboten werden.
-Was wäre, wenn du die Qualität der Quantität vorzögest, was dein
-Lesen und Lernen betrifft? Was wäre, wenn du ein paar großartige
-Bücher intensiv lesen würdest anstatt flüchtig durch alle Neuerschei-
-nungen zu blättern? Deine Bücherregale wären vielleicht leerer, aber
-dein Geist und dein Leben wären reicher.
-
 **Qualtität statt Quantität**  
 > Was soll es bezwecken, zahllose Bücher zu besitzen, die man zu Lebzeiten kaum alle lesen kann? Dem Lernenden wird nichts beigebracht, das reine Ausmaß belastet ihn nur. Deshalb ist es besser, die Samen von ein paar Autoren zu pflanzen, als die von vielen zu zerstreuen.  
 > <font size="-1">(...)</font>
